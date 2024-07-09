@@ -1,4 +1,4 @@
-### Merhaba! Ben Gökcen Orhun. Yönetim Bilişim Sistemleri bölümü 4.sınıf öğrencisiyim.
+
 
 
 
